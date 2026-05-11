@@ -1,4 +1,4 @@
-#  
+#  Experience escape waves for lucky blocks like never before with custom escape waves for lucky blocks Scripts, the #1 Script. Includes anti-ban and
 
 
 
